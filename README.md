@@ -1,3 +1,3 @@
-# Passionate C++ doomer
+# Passionate C++ zoomer
 
 tg: @PivasBulba
